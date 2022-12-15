@@ -1,7 +1,7 @@
 # DEIVID_ZZ
 
 <p align="center"> 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQAkUq6K7RE_mgxC74eeYfk8JQn8mEMjXR_VA&usqp=CAU" alt="img" width="400" height="279"/> 
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQAkUq6K7RE_mgxC74eeYfk8JQn8mEMjXR_VA&usqp=CAU" alt="img" width="200" height="279"/> 
 </p> 
 
 ## ¡Hola! Bienvenido(a) 😸 a este repositorio humilde como el bicho siuu☘. Ya weno, me podrias apoyar con una ⭐️?! :D

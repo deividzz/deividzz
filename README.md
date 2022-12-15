@@ -9,7 +9,7 @@
 - 💞️ a la escuela podré llegar tarde, pero nunca saldré tarde😼eaa
 ###### BOT pizza-MD… in proce$🍕 
 <p align="center"> 
-<img src="https://giphy.com/gifs/pixel-chainsaw-man-denji-fY0jahqHsqNznkhoaL” alt="gif" width="500" height="279"/> 
+<img src="https://giphy.com/gifs/pixel-chainsaw-man-denji-fY0jahqHsqNznkhoaL?utm_source=media-link&utm_medium=landing&utm_campaign=Media%20Links&utm_term=“ alt="gif" width="500" height="279"/> 
 </p>
 
 ### `mi número por cualquier pedillo`

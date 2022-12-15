@@ -1,7 +1,7 @@
 # DEIVID_ZZ
 
 <p align="center"> 
-<img src="1CDGOYI_enMX976MX976&hl=es-MX&prmd=ivn&sxsrf=ALiCzsZ_QhnQK9Cqw3IbjwZL3_0-elQmfQ:1671123380856&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjzm_fbi_z7AhV0kWoFHY51AkYQ_AUoAXoECAIQAQ&biw=375&bih=553&dpr=2#imgrc=QnCPoSD6uhRWPM&imgdii=9Fez373_pHlfDM" alt="gif" width="500" height="279"/> 
+<img src="1CDGOYI_enMX976MX976&hl=es-MX&prmd=ivn&sxsrf=ALiCzsZ_QhnQK9Cqw3IbjwZL3_0-elQmfQ:1671123380856&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjzm_fbi_z7AhV0kWoFHY51AkYQ_AUoAXoECAIQAQ&biw=375&bih=553&dpr=2#imgrc=QnCPoSD6uhRWPM&imgdii=9Fez373_pHlfDM" alt="img" width="500" height="279"/> 
 </p> 
 
 ## ¡Hola! Bienvenido(a) 😸 a este repositorio humilde como el bicho siuu☘. Ya weno, me podrias apoyar con una ⭐️?! :D

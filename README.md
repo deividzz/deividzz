@@ -10,7 +10,7 @@
 ###### BOT pizza-MD… in proce$🍕 
 
 <p align="center"> 
-<img src="/images/https://giphy.com/gifs/pixel-chainsaw-man-denji-fY0jahqHsqNznkhoaL?utm_source=media-link&utm_medium=landing&utm_campaign=Media%20Links&utm_termgif.gif" alt="gif" width="500" height="279"/> 
+<img src="/https://i.giphy.com/media/fY0jahqHsqNznkhoaL/giphy.webp.gif" alt="gif" width="500" height="279"/> 
 </p> 
 
 ### `mi número por cualquier pedillo`

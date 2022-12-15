@@ -5,7 +5,7 @@
 </p> 
 
 ## ¡Hola! Bienvenido(a) 😸 a este repositorio humilde como el bicho siuu☘. Ya weno, me podrias apoyar con una ⭐️?! :D
-####🌱no estoi aki para ser uno más, voi a ser el mejor💯
+- 🌱no estoi aki para ser uno más, voi a ser el mejor💯
 - 💞️ a la escuela podré llegar tarde, pero nunca saldré tarde😼eaa
 ###### BOT pizza-MD… in proce$🍕 
 

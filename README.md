@@ -6,7 +6,7 @@
 
 ## ¡Hola! Bienvenido(a) 😸 a este repositorio humilde como el bicho siuu☘. Ya weno, me podrias apoyar con una ⭐️?! :D
 - 🌱 Wacha berenaisssss, toi vibrando alto jajsjsj
-- 💞️ a la escuela podré llegar tarde, pero nunca me iré tarde😼
+- 💞️ a la escuela podré llegar tarde, pero nunca saldré tarde😼eaa
 ###### BOT pizza-MD… in proce$🍕 
 
 ### `mi número por cualquier pedillo`

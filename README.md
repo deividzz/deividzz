@@ -10,7 +10,7 @@
 ###### BOT pizza-MD… in proce$🍕 
 
 <p align="center"> 
-<img src="/https://i.giphy.com/media/fY0jahqHsqNznkhoaL/giphy.webp.gif" alt="gif" width="500" height="279"/> 
+<img src="https://i.giphy.com/media/fY0jahqHsqNznkhoaL/giphy.webp" alt="gif" width="500" height="279"/> 
 </p> 
 
 ### `mi número por cualquier pedillo`
